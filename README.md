@@ -12,7 +12,7 @@
 
 - 💬 Ask me about **Mobile application development, Android game development**
 
-- 📫 How to reach me **pandapo1729@gmail.com**
+- 📫 How to reach me **jeevanrao2002@gmail.com**
 
 - ⚡ Fun fact **Mental Adventure**
 
